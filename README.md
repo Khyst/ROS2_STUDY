@@ -22,7 +22,7 @@
 
 ---
 
-> We applied the below papers (Thanks 😍)
+> We applied the below papers
 > 
 
 ---
